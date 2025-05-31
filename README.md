@@ -35,3 +35,18 @@ Medical facilities rely on consistent air, gas, and water pressure for life-savi
 From science laboratories to large-scale campus water management, pressure monitoring is essential. MANXPOWER delivers gauges that are safe, accurate, and easy to use for educational settings.<br>
 <h3>Conclusion</h3>
 In a world where operational excellence depends heavily on accurate monitoring systems, MANXPOWER emerges as a brand of choice for <a href="https://manximpex.com/fire-extinguisher-accessories-2/" title="pressure guage' alt"pressure gauge" >pressure gauges</a> Combining durability, precision, and affordability, MANXPOWER empowers industries to operate safely and efficiently. Whether it’s a skyscraper’s water system or a hospital’s oxygen supply, MANXPOWER is there—measuring what matters most.
+<h4>Get in touch with us : </h4>
+<li>Website: https://manximpex.com/hose-clamps/</li>
+<li>E-mail: info@manximpex.com</li>
+<li>Contact number: +91- 7428115550, +91- 7065192900</li>
+<li>Address: 3963/9, Ground floor, city market, Ajmeri gate, Delhi 110006</li>
+<h4>Follow us on:</h4>
+<li>Instagram: https://instagracom.com/manximpex/ </li>
+<li>Facebook: https://facebook.com/manximpex/</li>
+<h5>Our Youtube Channel: https://youtube.com/@manximpex </h5>
+<h3>Related Blog:</h3>
+<ul><li><a href="https://manximpex.com/fire-safety-tips-for-homeowners/">Top 10 Fire safety tips for homeowners</a></li>
+<li><a href="https://manximpex.com/common-fire-extinguisher-myths-debunked/">Common Fire Extinguisher Myths: Debunking Misconceptions about Fire Safety</a></li>
+<li><a href="https://manximpex.com/hose-clamps-india/"> Hose Clamp in India: CS HOSE CLAMPS Leading the Way in Quality and Innovation</a></li>
+<li><a href="https://manximpex.com/fire-evacuation-plan/">How to Create an Effective Fire Evacuation Plan for Your Business</a></li>
+<li><a href="https://manximpex.com/benefits-of-installing-sprinkler-system/">The Benefits of Installing Sprinkler Systems in Residential Properties</li></ul>
