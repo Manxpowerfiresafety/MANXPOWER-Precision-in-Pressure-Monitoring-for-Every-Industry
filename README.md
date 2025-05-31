@@ -13,7 +13,7 @@ Choosing the right <a href="https://manximpex.com/fire-extinguisher-accessories-
 MANXPOWER gauges perform with unwavering accuracy in high-pressure, high-temperature, and corrosive conditions—delivering data you can trust in mission-critical operations.<br>
 <b>2. Wide Product Range</b><br>
 From analog dial-type gauges to digital variants with smart monitoring capabilities, MANXPOWER offers a comprehensive catalog tailored to different pressure ranges and environments.<br>
-<b2>3. Customization Options</b2><br>
+<b>3. Customization Options</b><br>
 MANXPOWER provides custom gauge designs based on specific user requirements, ensuring optimal compatibility and performance in unique systems.<br>
 <b>4. Customer-Centric Support</b><br>
 With a focus on customer satisfaction, MANXPOWER offers strong post-sales support, including technical guidance, calibration services, and spare parts availability.<br>
